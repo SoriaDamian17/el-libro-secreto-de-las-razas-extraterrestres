@@ -129,7 +129,7 @@ Se vieron por última vez en la Tierra en el mes de julio del año 2008.
 
 <p align="center">
   <h2>Pleyadiyans</h2>
-  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjQ4qXQ1IThAhVQlKwKHc4KDuQQjRx6BAgBEAU&url=https%3A%2F%2Fwww.spiritualunite.com%2Farticles%2Fpleiadian-traits%2F&psig=AOvVaw0CQdTMcfJV4xIHDgPTYcFi&ust=1552756963869429" alt="Pleyadiyans"/>
+  <img src="https://i.ytimg.com/vi/fh7Bl0svLZA/hqdefault.jpg" alt="Pleyadiyans"/>
 </p>
 
 Esta raza es oriunda de sistemas solares junto a las Pléyades, específicamente del planeta Erra, cerca de la estrella Taygeta. Frecuentemente se les asocia con el mundo espiritual.
@@ -148,7 +148,7 @@ Siguen desarrollando capacidades mentales necesarias para alcanzar un estado esp
 
 <p align="center">
   <h2>Killymir-Auk</h2>
-  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwiHwqud1YThAhUSG6wKHdvcAQQQjRx6BAgBEAU&url=https%3A%2F%2Fwww.pinterest.ca%2Fpin%2F309904018104245967%2F&psig=AOvVaw0NZldW3Xv4nVgtPYW8akwk&ust=1552757111378840" alt="Killymir-Auk"/>
+  <img src="https://marcianosmx.com/wp-content/uploads/2017/02/KYLLIMIR-AUK.jpg" alt="Killymir-Auk"/>
 </p>
 
 Provienen de la constelación Volans.
@@ -162,9 +162,8 @@ La última vez que se les vio en el planeta fue en el mes de diciembre de 1989.
 <p align="center">
   <h2>Kurs</h2>
   <h3>Los dioses de la tierra.</h3>
-  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwit7ZeH1oThAhVFAqwKHe82C7EQjRx6BAgBEAU&url=https%3A%2F%2Fgigantiidacia.wordpress.com%2F2013%2F10%2F04%2Fthe-book-alien-races%2F&psig=AOvVaw3RIqotRHbbGNX_7VlH6Hif&ust=1552757261671181" alt="Kurs"/>
+  <img src="https://gigantiidacia.files.wordpress.com/2013/10/kurs.jpg" alt="Kurs"/>
 </p>
-
 
 Se cree que esta raza tiene relación con los Anunnaki.
 
@@ -185,7 +184,7 @@ Pasan largos lapsos sumergidos en un líquido dorado que se cree aumenta la dura
 <p align="center">
   <h2>Hav-Hannuae-Kondras</h2>
   <h3>Los vampiros</h3>
-  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjB7f6P14ThAhUDd6wKHXaAAGkQjRx6BAgBEAU&url=https%3A%2F%2Fgigantiidacia.wordpress.com%2Ftag%2Frace-hav-hannuae-kondras%2F&psig=AOvVaw27P2eYoFPJcCfamZm9E3v6&ust=1552757506912518" alt="Hav-Hannuae-Kondras"/>
+  <img src="https://gigantiidacia.files.wordpress.com/2013/10/1.jpg" alt="Hav-Hannuae-Kondras"/>
 </p>
 
 Provienen de la Galaxia Enana de Sextans.
@@ -201,7 +200,6 @@ Varios gobiernos están al tanto de sus acciones, y algunos las respaldan.
 Los cuerpos humanos que abdujeron jamás fueron devueltos.
 
 La última vez que se les vio en la Tierra fue en el año de 1996 en Escocia.
-
 
 # El Consejo de los 5
 
