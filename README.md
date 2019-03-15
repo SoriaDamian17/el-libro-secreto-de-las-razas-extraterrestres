@@ -88,6 +88,26 @@ Espero que disfruten el libro y todas las revelaciones que contiene.
 #"Este libro fue dedicada a la memoria de PETRO".
 
 # Las Razas Alienigenas
+En el libro que encontramos con Petro describiría no solo las características físicas de los diferentes tipos de extraterrestres, sino que además detallaría en qué momentos visitaron el planeta y cuál es la posición planetaria de cada una de las especies identificadas.
+
+<p align="center">
+  <h2>Allgruulk</h2>
+  <h3>Los Constructores</h3>
+  <img src="https://marcianosmx.com/wp-content/uploads/2017/02/ALLGRUULK.jpg" alt="ALLGRUULK"/>
+</p>
+
+Provienen de la constelación Sculptor.
+
+Son descendientes de una raza reptiliana que se extinguió.
+
+Se especializan en la construcción de naves y otros dispositivos usados para los viajes en el espacio.
+
+Ellos también son viajeros del espacio, en busca de nuevas materias primas.
+
+Su promedio de vida es de 230 años.
+
+Se divisaron por última vez en la ciudad de Tokio, Japón, en el año 2005.
+
 
 # El Consejo de los 5
 
