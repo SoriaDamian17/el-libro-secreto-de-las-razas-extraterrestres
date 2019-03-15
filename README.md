@@ -431,3 +431,46 @@ El consejo debió reunirse en la Tierra en los últimos 10 días del mes de agos
 Se les vio por última vez en el planeta en septiembre del 2002, sobre el mar de Cortés.
 
 # El Consejo de los 5
+Se sabe poco sobre las cinco razas alienígenas que forman parte del "Consejo de 5".
+
+Las razas que forman parte de este Consejo (anteriormente conocido como el "Consejo de los 9") han estado protegiendo a la Tierra y a los Humanos durante el tiempo que existen (alien) registros de la misma.
+
+Algunos dicen que han estado protegiendo el planeta incluso antes de que existieran los seres humanos ... ¡durante millones de años!
+
+Una raza alienígena informó que el "Consejo de los 5" se reunió por última vez en la Tierra en 1944.
+
+Nota: Encontramos una nota escrita a mano en el ARB con fecha de julio de 2005 que indica que el "Consejo de los 5" se reunirá en la Tierra durante los últimos 10 días de agosto de 2013. La misma nota también mencionó el hecho de que la presencia y la llegada de esas 5 razas podrían causar eventos cósmicos que pueden afectar la atmósfera de la Tierra. Y también se dijo que los Humanos verían un aumento en la actividad de las naves alienígenas durante ese período.La nota también indica que la reunión del consejo es para discutir posibles amenazas a la Tierra y los Humanos, así como el hecho de que tantas "nuevas" razas alienígenas han estado visitando la Tierra "últimamente" ... por "últimamente" la nota indica que Eso significa durante los últimos 500 años.
+
+Según varias razas extraterrestres, el "Consejo de 5" (en ese momento "Consejo de 9") ha monitoreado la evolución humana desde tiempos primitivos, ya que los humanos eran solo un organismo marino de una célula y en toda la evolución natural, cuando los humanos se volvieron como primates criaturas y más allá (después del Anunakene, también conocido como Anunnaki, interferencia ...).
+Según esas mismas razas alienígenas, todas las secuencias evolutivas en todos los planetas tienen un principio y un final (con la excepción de los detalles menores debidos principalmente a cambios climáticos radicales).
+
+Después de que el anunakene manipuló el ADN de los "primates" y creó a los humanos, el "Consejo de los 5" decidió no solo controlarnos sino también protegernos, ya que se dieron cuenta de que un día los humanos podrían unirse a otras razas alienígenas en desarrollo y ilustración.
+
+El "Consejo de 5" esta compuesto por los siguientes razas:
+
+<p align="center">
+  <h2>Orela</h2>
+  <img src="https://i.pinimg.com/originals/f0/1a/cf/f01acf363deb905d0490732d539b6a09.jpg" height="350" alt="Orela"/>
+</p>
+
+<p align="center">
+  <h2>Egarot</h2>
+  <img src="https://gigantiidacia.files.wordpress.com/2013/10/egarot.jpg?w=584" height="350" alt="Egarot"/>
+</p>
+
+<p align="center">
+  <h2>Ginvo</h2>
+  <img src="https://saucerlife.files.wordpress.com/2018/05/d984d8a8d98ad8a8d8abd8a8d982d982.jpg?w=231&h=300" height="350" alt="Ginvo"/>
+</p>
+
+<p align="center">
+  <h2>Redan</h2>
+  <img src="https://supersoldierforum.ubbforum.com/fileSendAction/fcType/0/fcOid/494732649599462112/filePointer/494732649599462128/fodoid/494732649599462121/imageType/MEDIUM/inlineImage/true/mceclip0.jpg" height="350" alt="Redan"/>
+</p>
+
+<p align="center">
+  <h2>Emerther</h2>
+  <img src="https://2.bp.blogspot.com/-7nafSHV51sk/V1Mv9Oi4VYI/AAAAAAAAFvw/nIUOTD0mnfcmg5Mnvv_Hb_AxgvwLvR8ogCLcB/s1600/a8j3vG3_700b.jpg" height="350" alt="Emerther"/>
+</p>
+
+¡En general, se acepta que los Emether es la raze más importante no solo del consejo sino también entre todas las razas conocidas! Están relacionados con el Solipsi Rai, pero son mucho más antiguos y avanzados en todos los niveles. Fueron una de las razas fundadoras del Consejo. Se reunieron con el Presidente de los EE. UU. D. Eisenhower en 3 ocasiones diferentes ... también se reunieron con 2 Altos -Ranking líderes de la URSS en 3 ocasiones diferentes ... e intentaron (no "obligan" a los Humanos) a reunirse con el Presidente R.Nixon de los EE. UU., Pero se negó a afirmar ya que sería demasiado peligroso ya que podrían leer su mente. y descubra los delicados secretos de seguridad nacional relacionados con las relaciones con la URSS.
