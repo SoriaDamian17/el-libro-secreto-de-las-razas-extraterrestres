@@ -108,6 +108,100 @@ Su promedio de vida es de 230 años.
 
 Se divisaron por última vez en la ciudad de Tokio, Japón, en el año 2005.
 
+<p align="center">
+  <h2>Kily-tokurt</h2>
+  <img src="https://i.pinimg.com/originals/a8/ee/36/a8ee365c62b0056c8d6d0eaec37e5364.jpg" alt="Kily-tokurt"/>
+</p>
+
+La raza es oriunda de la constelación Velame, cerca de la Estrella Suhail al Muhlif.
+
+Pueden llegar a crecer hasta los dos metros de altura y su promedio de vida es de dos siglos.
+
+Pueden cambiar de forma y son increíblemente difíciles de detectar.
+
+Al cambiar de forma, lo único que no pueden modificar es la forma y el color de sus ojos.
+
+Es una de las razas más antiguas conocidas.
+
+Abducen seres humanos.
+
+Se vieron por última vez en la Tierra en el mes de julio del año 2008.
+
+<p align="center">
+  <h2>Pleyadiyans</h2>
+  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjQ4qXQ1IThAhVQlKwKHc4KDuQQjRx6BAgBEAU&url=https%3A%2F%2Fwww.spiritualunite.com%2Farticles%2Fpleiadian-traits%2F&psig=AOvVaw0CQdTMcfJV4xIHDgPTYcFi&ust=1552756963869429" alt="Pleyadiyans"/>
+</p>
+
+Esta raza es oriunda de sistemas solares junto a las Pléyades, específicamente del planeta Erra, cerca de la estrella Taygeta. Frecuentemente se les asocia con el mundo espiritual.
+
+Pueden alcanzar una estatura de hasta 2.5 metros.
+
+Practican el “cultivo sexual”, con una diferencia específica entre las expresiones sexuales y las emociones.
+
+Sus naves se conocen cómo “Beamship”.
+
+Aunque ya visitaron la Tierra, se han mantenido en silencio desde el año 10,000 a.C.
+
+Es una de las razas más antiguas conocidas.
+
+Siguen desarrollando capacidades mentales necesarias para alcanzar un estado espiritual aún más elevado.
+
+<p align="center">
+  <h2>Killymir-Auk</h2>
+  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwiHwqud1YThAhUSG6wKHdvcAQQQjRx6BAgBEAU&url=https%3A%2F%2Fwww.pinterest.ca%2Fpin%2F309904018104245967%2F&psig=AOvVaw0NZldW3Xv4nVgtPYW8akwk&ust=1552757111378840" alt="Killymir-Auk"/>
+</p>
+
+Provienen de la constelación Volans.
+
+Los encuentros con esta raza son muy raros en la Tierra. Se le considera una “raza misteriosa.
+
+Se dice que les prohibieron visitar la Tierra alrededor del año 1000 a.C., pero no perdieron el vínculo con el planeta gracias a sus aliados: la raza Maitre.
+ 
+La última vez que se les vio en el planeta fue en el mes de diciembre de 1989.
+
+<p align="center">
+  <h2>Kurs</h2>
+  <h3>Los dioses de la tierra.</h3>
+  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwit7ZeH1oThAhVFAqwKHe82C7EQjRx6BAgBEAU&url=https%3A%2F%2Fgigantiidacia.wordpress.com%2F2013%2F10%2F04%2Fthe-book-alien-races%2F&psig=AOvVaw3RIqotRHbbGNX_7VlH6Hif&ust=1552757261671181" alt="Kurs"/>
+</p>
+
+
+Se cree que esta raza tiene relación con los Anunnaki.
+
+Provienen del planeta Dillimuns.
+
+Están detrás del mito de Enlil y Ninlil.
+
+Se involucraron activamente con el desarrollo de la raza humana al inicio de nuestra civilización.
+
+Después de cientos de años alejados de la Tierra, recientemente retornaron.
+ 
+El propio jefe de la raza se encuentra entre los últimos visitantes.
+
+Planean quedarse en la tierra de forma permanente, pues tendrán un papel importante en los años venideros.
+
+Pasan largos lapsos sumergidos en un líquido dorado que se cree aumenta la duración de su vida.
+
+<p align="center">
+  <h2>Hav-Hannuae-Kondras</h2>
+  <h3>Los vampiros</h3>
+  <img src="https://www.google.com/url?sa=i&rct=j&q=&esrc=s&source=images&cd=&cad=rja&uact=8&ved=2ahUKEwjB7f6P14ThAhUDd6wKHXaAAGkQjRx6BAgBEAU&url=https%3A%2F%2Fgigantiidacia.wordpress.com%2Ftag%2Frace-hav-hannuae-kondras%2F&psig=AOvVaw27P2eYoFPJcCfamZm9E3v6&ust=1552757506912518" alt="Hav-Hannuae-Kondras"/>
+</p>
+
+Provienen de la Galaxia Enana de Sextans.
+
+Visitaron la Tierra por primera vez en el año 934 a.C., en la región que actualmente pertenece a Rumanía.
+
+Frecuentemente abducen y asesinan seres humanos, también suelen retirar y beber sangre humana y animal.
+
+Se les responsabiliza por el mito de los vampiros.
+
+Varios gobiernos están al tanto de sus acciones, y algunos las respaldan.
+
+Los cuerpos humanos que abdujeron jamás fueron devueltos.
+
+La última vez que se les vio en la Tierra fue en el año de 1996 en Escocia.
+
 
 # El Consejo de los 5
 
